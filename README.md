@@ -10,3 +10,9 @@ i had a brother
 his name is sajidhullah
 i love my dad and my family
 i like to spent time with my brother
+my role model is muhammed saw alaihi wa sal
+and my father
+bcz my father is a hardworking person and
+he gives me more unconditional love 
+and i love them
+my fav person is my mom and myself
