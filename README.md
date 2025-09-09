@@ -16,3 +16,6 @@ bcz my father is a hardworking person and
 he gives me more unconditional love 
 and i love them
 my fav person is my mom and myself
+hii sir
+i think you are a kind person sir
+...
